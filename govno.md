@@ -1,0 +1,2 @@
+zalupa
+hui pizda sranaia
